@@ -1,0 +1,1 @@
+# omerfarukkurklu.github.io
